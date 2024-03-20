@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Aws_Fadhli
+- 👀 I’m interested in creating websites
+- (you can see my websites on my account)
+- 🌱 I’m currently learning python
+- 🎈 My discord is awissa_fadhli
